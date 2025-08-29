@@ -1,11 +1,3 @@
 
-
-   <body></body> yaoi isn't for me
-
-
+  hi hi hi hi hi hi hi hi hi
    
-
-
-
-[ATA .  BOOK](https://campsleepinh.atabook.org/). 
-<img width="826" height="275" alt="Untitled243_20250820200401" src="https://github.com/user-attachments/assets/c5a57732-b41a-4884-aef9-32104d307287" /> [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31aolntofja7eezo74jmie3eaa6e&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=000000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
