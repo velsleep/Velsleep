@@ -1,6 +1,6 @@
 
 
-<img width="735" height="208" alt="Untitled309_20250831222717" src="https://github.com/user-attachments/assets/78decbcd-e24d-4aa3-acd0-cd55e72a15ba" />
+<img width="735" height="208" alt="Untitled309_20250906230925" src="https://github.com/user-attachments/assets/b62ca143-9519-4465-aeaf-d9e5686f4e0d" />
 
 ![Tumblr_l_142414394164683](https://github.com/user-attachments/assets/e372df99-26b9-4851-aa65-85e528d8cb03)
 [GRAPHIC MADE BY:](https://www.tumblr.com/cyberstarmp3?source=share) 
@@ -13,4 +13,4 @@
 
 
 
-<img width="735" height="208" alt="Untitled309_20250831222721" src="https://github.com/user-attachments/assets/2b26a00b-1d76-4077-8444-e827bcf80417" />
+<img width="735" height="208" alt="Untitled309_20250906230929" src="https://github.com/user-attachments/assets/f37abfcb-0a81-433e-9e26-ceca87ac3e3c" />
